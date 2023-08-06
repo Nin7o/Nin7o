@@ -1,6 +1,6 @@
 ### Hey ! I'm Nino !
 
-Currently trying to learn how to code - not going well
+Currently trying to learn how to code - not going well (:(
 
 #### Important links : 
 - [Twitter](https://twitter.com/Azral0n) ✨
