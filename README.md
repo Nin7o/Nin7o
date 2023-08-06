@@ -3,9 +3,9 @@
 Currently trying to learn how to code - not going well
 
 #### Important links : 
-- [Twitter](https://twitter.com/Azral0n)
-- [AniList](https://anilist.co/user/nin7o/)
-- [OF](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+- [Twitter](https://twitter.com/Azral0n) ✨
+- [AniList](https://anilist.co/user/nin7o/) ✨
+- [OF](https://www.youtube.com/watch?v=dQw4w9WgXcQ) ✨
 
 
 <!--
